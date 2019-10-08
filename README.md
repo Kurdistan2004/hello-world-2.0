@@ -1,6 +1,3 @@
 # hello-world-2.0
 
-Hi Humans!
-
-Hema here, I like food, pizza and Burgers ( tha's is what i like).
-I also play basketball and i love it and it is great.
+Hi guys, i am Hema Tahir and i am here to talk little about my self, I like food a lot and i like playing sports and i also love playing video games for example, Rainbow Six Seige, CSGO, Fortnite.
